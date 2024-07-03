@@ -10,6 +10,7 @@ Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
+Kristin Towns XD  :) 
 Lydia Fares :D
 Kippen Lee (╯°□°）╯︵ ┻━┻ 
 Michael Hunter 🍕
